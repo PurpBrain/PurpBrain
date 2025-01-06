@@ -1,4 +1,4 @@
-### Hi there, I'm PurpBrain ! 👋
+### Hi there, I'm Léo ! 👋
 
-- 🔭 I’m currently in a formation
-- ⚡ Fun fact: I'm a car boy
+- 🔭 I’m currently UX / UI Designer (not a developer)
+- ⚡ Fun fact: I'm stupid (S/o Charles)
